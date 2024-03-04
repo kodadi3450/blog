@@ -1,3 +1,3 @@
-# Ali Feyyaz ŞATIROĞLU
+# kodadi3450
 
-Twitter, LinkedIn
+Twitter, Medium
